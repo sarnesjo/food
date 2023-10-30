@@ -4,7 +4,7 @@
 
 ## Ingredients
 
-- 600g quorn pieces
+- 600 g quorn pieces
 - 2 red capsicums
 - 2 green chilis
 - 1 large red onion

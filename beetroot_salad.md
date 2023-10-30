@@ -10,7 +10,7 @@
 - 4 stalks celery, sliced
 - 6 green onions, white part only, thinly sliced
 - 2 garlic cloves, crushed
-- 200g feta, crumbled
+- 200 g feta, crumbled
 - fresh coriander, chopped
 
 ### Dressing

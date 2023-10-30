@@ -11,7 +11,7 @@
 - 8 garlic cloves
 - 2 tins beans
 - 2 tins chopped tomatoes
-- 50g tomato paste
+- 50 g tomato paste
 - 2 stock cubes + some water
 - 1-2 pieces dark chocolate
 

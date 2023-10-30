@@ -4,13 +4,13 @@
 
 ## Ingredients
 
-- 300g pasta
+- 300 g pasta
 - 1 medium onion, finely diced
 - 4 garlic cloves, finely sliced
 - 1/2 cup vodka
-- 350g tomato passata
-- 150ml cooking cream
-- 100g parmesan, grated
+- 350 g tomato passata
+- 150 ml cooking cream
+- 100 g parmesan, grated
 - Butter
 - Olive oil
 - Chili flakes
